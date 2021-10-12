@@ -1,0 +1,1 @@
+# kodluyoruzbolumsonucalismasi2
